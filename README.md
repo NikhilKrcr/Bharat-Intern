@@ -1,0 +1,1 @@
+# Welcome to Bharat Intern, where we believe in nurturing talent and providing young minds with the opportunity to grow, learn, and succeed in the professional world. Our internship program is designed to empower aspiring individuals and connect them with real-world experiences in their fields of interest.
